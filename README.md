@@ -10,4 +10,4 @@ Ultilizo esse espaço para minha organização e compartilhamento dos meus proje
 @gustavo_zanata
 
 ![](https://media1.tenor.com/m/Faoc0RLFGMUAAAAC/deadpool3-tva.gif)
-https://media1.tenor.com/m/Faoc0RLFGMUAAAAC/deadpool3-tva.gif
+
